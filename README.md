@@ -19,12 +19,11 @@ goes down beyond a certain level.
 ## WEBSITE PREVIEW
 https://user-images.githubusercontent.com/110488100/229421221-0f8f7686-cce3-46e4-9702-64d08d407a37.mp4
 
+- [@NILESH](https://www.linkedin.com/in/warke-nilesh-88711a228/)
 
 - [@PEEYUSH](https://www.linkedin.com/in/peeyush-deshpande-237323243)
 
-- [@NILESH](https://www.linkedin.com/in/warke-nilesh-88711a228/)
-
-- [@NEHA]()
+- [@NEHA](https://www.linkedin.com/in/neha-kore-9a051a221)
 
 - [@KALYANI]()
 
