@@ -25,7 +25,7 @@ https://user-images.githubusercontent.com/110488100/229421221-0f8f7686-cce3-46e4
 
 - [@NEHA](https://www.linkedin.com/in/neha-kore-9a051a221)
 
-- [@KALYANI]()
+- [@KALYANI](https://www.linkedin.com/in/kalyani-tangade-a6b05121a)
 
 
 
